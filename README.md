@@ -1,7 +1,7 @@
 <h2>老男人游戏网官网入口，家用游戏机及掌机游戏下载|网页|打不开</h2>
 <p>老男人游戏网是一个专注于提供高质量游戏资源下载的平台，尤其适合怀旧游戏玩家和经典游戏爱好者。该网站拥有超过10TB的游戏资源，涵盖从经典到现代的多种游戏平台，包括家用游戏机和掌上游戏机。资源种类丰富，覆盖PSV、3DS、PSP、NDS、GBA等经典平台，以及PS3、WIIU、XBOX360等现代游戏机。老男人游戏网的资源经过精校，确保下载后能够正常运行，无需用户进行额外调试。此外，网站无需注册即可下载资源，简化了使用流程。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/4504.html" target="_blank"><strong>老男人游戏网最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://oldmantvg.wwwnav.com/" target="_blank"><strong>老男人游戏网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://appxiazai.pages.dev/" target="_blank"><strong>网友汇总的游戏网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>丰富的游戏资源</strong> 老男人游戏网提供超过10TB的游戏资源，涵盖多种经典和现代游戏平台，包括家用游戏机和掌上游戏机。无论是经典老游戏还是现代大作，用户都能在这里找到。</p>
